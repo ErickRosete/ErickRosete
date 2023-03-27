@@ -6,4 +6,4 @@ I help companies develop and deploy professional AI solutions solving real-world
 If your company is facing challenges you need to solve quickly, reach out to me directly by<br />
 [LinkedIn](https://www.linkedin.com/in/erickrosete/) message,<br>
 E-mail: iam@erickrosete.com, or<br>
-Phone: +1(408)877-7007.
+Phone: +1 (858) 437 9254.
